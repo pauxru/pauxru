@@ -8,4 +8,4 @@ Feel free to take a look at my repositories to see some of the projects I've wor
 
 Thanks for stopping by.
 
-wwww.pawadtech.one
+paulrukwaro.com
